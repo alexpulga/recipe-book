@@ -19,6 +19,8 @@
 - 2 tsp cinnamon
 - 1 tsp ginger, ground or juice
 - 0.5 tsp ground cloves
+- semillas de sesamo
+- semillas de ajonjoli
 - 2 eggs
 
 

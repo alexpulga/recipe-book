@@ -31,6 +31,8 @@
 - Smash manually until somehow homogeneous
 - Add eggs and blend
 - Add evaporated milk and blend
+- adicione las semillas
+- revolver mucho
 
 
 ## Baking
